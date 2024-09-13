@@ -5,4 +5,4 @@
 - 📫 How to reach me: juan.vega@trade.ec
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I’m a huge fan of Colón de Santa Fe, the NBA, and sneakers.
-- 
+  
